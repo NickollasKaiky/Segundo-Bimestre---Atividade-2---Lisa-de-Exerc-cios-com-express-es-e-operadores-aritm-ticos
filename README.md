@@ -1,0 +1,1 @@
+# Segundo-Bimestre---Atividade-2---Lisa-de-Exerc-cios-com-express-es-e-operadores-aritm-ticos
